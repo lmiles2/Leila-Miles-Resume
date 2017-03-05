@@ -1,4 +1,5 @@
-                                                                                       #**_LEILA YVONNE MILES_**
+
+#**_LEILA YVONNE MILES_**
                _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
 
 ##**SKILLS**
@@ -29,7 +30,7 @@ _Office skills:_ reception, greeting, multi-tasking, spreadsheets, scheduling, r
 * Secured media interest from NBC’s Today Show, KING, KOMO, KIRO, Q13, KJZZ 98.9 Smooth Jazz, KPLU 88.5, Seattle Post-Intelligencer, . . Seattle Times, Seattle Magazine, Puget Sound Business Journal, Seattle Business Monthly, Seattle Weekly, The Facts Newspaper, . . The Skanner.
 
 **Los Angeles, CA   2000 – 2004**
-**_VARIOUS LONG-TERM ASSIGNMENTS_**
+**_VARIOUS LONG-TERM ASSIGNMENTS_**  
 **AIG SUNAMERICA** 
 **_Documentation Specialist_**
 * Provided change management direction, documentation and training for 2 multi-million dollar SAP implementations at 2 AIG companies and   AIG SunAmerica’s Broker/Dealers. Implementations more than tripled the number of users on AIG SunAmerica’s SAP platform in  8 months.
@@ -40,7 +41,7 @@ _Office skills:_ reception, greeting, multi-tasking, spreadsheets, scheduling, r
 * Evaluated and presented online promotions’ ability to drive traffic and sell “O Brother, Where Art Thou?” soundtrack online  Analyzed sales numbers with internet traffic and promotion milestones using SoundScan and Webtrends data  Soundtrack became #2 selling internet album for the year within one month of release.
 * Designed, created concepts and all content for official site for the band Dujour in the movie “Josie and the Pussycats.” 
  
- **INTERACTIVE MARKETING, INC.**
+**INTERACTIVE MARKETING, INC.**
  **_Strategic Consultant_**
 * Determined marketing strategy and proposed multiple revenue streams for companies entering the internet arena.
 * Projected clients’ ability to generate advertising revenue.  Created Excel revenue models to forecast advertising and sponsorship  portion of revenue for vPangea 3d World software. Revenue models heavily utilized by CEO and Executive Management team.
