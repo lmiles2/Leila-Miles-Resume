@@ -6,19 +6,22 @@ _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcrea
 _Office skills:_ reception, greeting, multi-tasking, spreadsheets, scheduling, research, social media   _Marketing:_ Marketing strategy, event planning, public presentations, strong client relationships   _General Business:_ research, budget monitoring,    _Computer:_ MS Office, ALAS Sales CRM system, Etapestry donor database management system, SAP, MS Frontpage, Visio,   Adobe Creative Suite, Dreamweaver & FLASH Language: French
 ##**EXPERIENCE**
 **Redmond, WA 2015 - present**
-**NOVITEX ENTERPRISES, INC. at MICROSOFT CORPORATION**
-**_Receptionist_**  Enhance the lobby experience at Novitex client Microsoft main campus.  Engage guests, explore options with them,  excite people and exceed expectations daily. Ensure conference rooms are booked daily.
+**NOVITEX ENTERPRISES, INC. at MICROSOFT CORPORATION**  
+**_Receptionist_**    
+Enhance the lobby experience at Novitex client Microsoft main campus.  Engage guests, explore options with them,  excite people and exceed expectations daily. Ensure conference rooms are booked daily.
 
 **Redmond, WA 2009 – 2011**
-**DIGNITY MEMORIAL**
-**_Family Service Counselor_**  Inside sales representative protecting families through pre-need and at-need funeral and cemetery   sales totaling over $140k.  August 2010 sales were #10 in the market at over $48,000.
+**DIGNITY MEMORIAL**  
+**_Family Service Counselor_**  
+Inside sales representative protecting families through pre-need and at-need funeral and cemetery   sales totaling over $140k.  August 2010 sales were #10 in the market at over $48,000.
 
 **Seattle, WA 2008 – 2016**
-**LMCREATIVE COMMUNICATIONS**
-**_CEO_** . . Led consulting business offering marketing, fundraising, PR and media expertise.  Offer event promotion plans,  major donor strategies and prospects, media placement and publicity for clients such as eLearners.com, UNCF, p.i.n.k Vodka,  Musiq Soulchild, Vitamin Water.
+**LMCREATIVE COMMUNICATIONS**  
+**_CEO_**  
+Led consulting business offering marketing, fundraising, PR and media expertise.  Offer event promotion plans,  major donor strategies and prospects, media placement and publicity for clients such as eLearners.com, UNCF, p.i.n.k Vodka,  Musiq Soulchild, Vitamin Water.
 
 **Seattle, WA 2005 – 2007**
-**NORTHWEST AFRICAN AMERICAN MUSEUM**
+**NORTHWEST AFRICAN AMERICAN MUSEUM**  
 **_Director of Development_**  Led fundraising for over 91% of $22 million capital campaign.  Raised over $17 million from all levels   of government, foundations, corporations and individuals between 2005 - 2007.  
 * Worked directly with and advised Executive Director.
 * Jointly developed strategic plan and business plan with Executive Director and Deputy Director for Museum.
