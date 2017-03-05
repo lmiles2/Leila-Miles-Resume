@@ -1,4 +1,4 @@
-#**_LEILA YVONNE MILES_**
+ **_LEILA YVONNE MILES_**
 _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
 
 ##**SKILLS**
@@ -21,8 +21,8 @@ Led consulting business offering marketing, fundraising, PR and media expertise.
 
 **Seattle, WA 2005 – 2007**
 **NORTHWEST AFRICAN AMERICAN MUSEUM**  
-**_Director of Development_**
-Led fundraising for over 91% of $22 million capital campaign.  Raised over $17 million from all levels   of government, foundations, corporations and individuals between 2005 - 2007.  
+**_Director of Development_**  
+Led fundraising for over 91% of $22 million capital campaign.  Raised over $17 million from all levels of government, foundations, corporations and individuals between 2005 - 2007.  
 * Worked directly with and advised Executive Director.
 * Jointly developed strategic plan and business plan with Executive Director and Deputy Director for Museum.
 * Supervised 2 employees.
