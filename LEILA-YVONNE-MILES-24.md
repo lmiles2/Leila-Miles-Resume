@@ -1,6 +1,6 @@
 
 #**_LEILA YVONNE MILES_**
-               _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
+_6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
 
 ##**SKILLS**
 _Office skills:_ reception, greeting, multi-tasking, spreadsheets, scheduling, research, social media   _Marketing:_ Marketing strategy, event planning, public presentations, strong client relationships   _General Business:_ research, budget monitoring,    _Computer:_ MS Office, ALAS Sales CRM system, Etapestry donor database management system, SAP, MS Frontpage, Visio,   Adobe Creative Suite, Dreamweaver & FLASH Language: French
@@ -47,7 +47,7 @@ _Office skills:_ reception, greeting, multi-tasking, spreadsheets, scheduling, r
 * Projected clients’ ability to generate advertising revenue.  Created Excel revenue models to forecast advertising and sponsorship  portion of revenue for vPangea 3d World software. Revenue models heavily utilized by CEO and Executive Management team.
 
 **San Mateo, CA  1996 – 1999**
-**FRANKLIN TEMPLETON**
+**FRANKLIN TEMPLETON**  
 **_Visual Media Specialist- Sales Development, Assistant Product Manager – Product Management_**
 * Managed visual aspect of presentation design for global sales force generating $494 million in annual fund sales.
 * Redirected department to total electronic distribution of sales presentations, resulting in $50,000 cost savings.
