@@ -7,7 +7,8 @@ _Office skills:_ reception, greeting, multi-tasking, spreadsheets, scheduling, r
 **Redmond, WA 2015 - present**
 **NOVITEX ENTERPRISES, INC. at MICROSOFT CORPORATION**  
 **_Receptionist_**    
-Enhance the lobby experience at Novitex client Microsoft main campus.  Engage guests, explore options with them,  excite people and exceed expectations daily. Ensure conference rooms are booked daily.
+Enhance the lobby experience at Novitex client Microsoft main campus.  Engage guests, explore options with them,  excite people and exceed expectations daily. Ensure conference rooms are booked daily. Provide access to employee rewards benefits and ORCA card commuter program, arrange shuttle service, provide facility improvement requests, maintain neatness and organization at desk.
+
 
 **Redmond, WA 2009 – 2011**
 **DIGNITY MEMORIAL**  
@@ -65,4 +66,5 @@ _Master of Business Administration: Marketing, ECommerce, Business of Entertainm
 
 **Stanford University – 1996** _Bachelor of Arts, Double Major: Psychology and Communication_
 
-**_AWARDS_** 2006 SEAFAIR Manager of Development **_COMMUNITY_** Urban Financial Services Coalition: Secretary, Foundation Board 2013  Marketing Communications Chair 2010, Sponsorship Chair 2009
+**_AWARDS_** SEAFAIR Manager of Development **_COMMUNITY_** Urban Financial Services Coalition: Secretary, Foundation Board 2013 Marketing Communications Chair 2010, Sponsorship Chair 2009 **_ACTIVITIES_** Ran 4 Half Marathons - Huntington Beach 2003 Seattle 2004 Whidbey Island 2006 See Jane Run 2015
+
