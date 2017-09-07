@@ -15,12 +15,12 @@ Enhance the lobby experience at Novitex client Microsoft main campus.  Engage gu
 **_Family Service Counselor_**  
 Inside sales representative protecting families through pre-need and at-need funeral and cemetery   sales totaling over $140k.  August 2010 sales were #10 in the market at over $48,000.
 
-**Seattle, WA 2008 – 2016**
+**Seattle, WA 2008 – 2016**  
 **LMCREATIVE COMMUNICATIONS**  
 **_CEO_**  
 Led consulting business offering marketing, fundraising, PR and media expertise.  Offer event promotion plans,  major donor strategies and prospects, media placement and publicity for clients such as eLearners.com, UNCF, p.i.n.k Vodka,  Musiq Soulchild, Vitamin Water.
 
-**Seattle, WA 2005 – 2007**
+**Seattle, WA 2005 – 2007**  
 **NORTHWEST AFRICAN AMERICAN MUSEUM**  
 **_Director of Development_**  
 Led fundraising for over 91% of $22 million capital campaign.  Raised over $17 million from all levels of government, foundations, corporations and individuals between 2005 - 2007.  
