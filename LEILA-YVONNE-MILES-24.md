@@ -1,14 +1,14 @@
- **_LEILA YVONNE MILES_**
+# **_LEILA YVONNE MILES_**
 _6347 137th Avenue NE #273, Redmond, WA 98052 206.931.8753 mobile, email: lmcreativecommunications@gmail.com_
 
 ##**SKILLS**
 _Office skills:_ reception, greeting, multi-tasking, spreadsheets, scheduling, research, social media   _Marketing:_ Marketing strategy, event planning, public presentations, strong client relationships   _General Business:_ research, budget monitoring,    _Computer:_ MS Office, ALAS Sales CRM system, Etapestry donor database management system, SAP, MS Frontpage, Visio,   Adobe Creative Suite, Dreamweaver & FLASH Language: French
+
 ##**EXPERIENCE**
 **Redmond, WA 2015 - present**
 **NOVITEX ENTERPRISES, INC. at MICROSOFT CORPORATION**  
 **_Receptionist_**    
 Enhance the lobby experience at Novitex client Microsoft main campus.  Engage guests, explore options with them,  excite people and exceed expectations daily. Ensure conference rooms are booked daily. Provide access to employee rewards benefits and ORCA card commuter program, arrange shuttle service, provide facility improvement requests, maintain neatness and organization at desk.
-
 
 **Redmond, WA 2009 – 2011**
 **DIGNITY MEMORIAL**  
